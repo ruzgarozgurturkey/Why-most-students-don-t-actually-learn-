@@ -1,1 +1,9 @@
 # Why-most-students-don-t-actually-learn-
+Have you ever thought about why can't you learn at the moment you actually heard? It is your brain! Sometimes it can be hustling for your brain to process things. Our brains our not machine, they aren't born with information.
+
+People are became more lethargic nowadays and this makes it even more arduous to learn. Especially with social media our concentration got more distracted than the past. But with time, we can get over this. Concentration has become more efficent these days and people with focus are more successful. We are surrounded by the influence of cell phones or iPads. More likely kids can't live with technological devices.
+From my perspective we neither live without phones or any other techonological device. Those devices are became more essential than it used to be. 
+
+If we want to understand how our brain is work, we should dive deeply to our conscious. Although your sleeping, your brain is active. And looking for something to spend time on. In your sleep, body stops excreting dopamine if your disciplined or not. It depends. On the other hand, if you are addicted; your brain never stops to excrete dopamine even while on your sleep. And this may cause troubles with your daily life. For instance you can't be happy anymore. Your taste is gone. You become an angry person. As I say, this is the life you chose over discipline. And with that, you had troubles with learning. Your cognitive skills are no longer efficent. 
+
+In conclusion, if your having problems with learning skills, you should try to adapt an better lifestyle. Furthermore, it will become much more significant for the future. Concentration is an common problem nowadays but it is not permanent. It's about dopamine loops. It is up to you to be a better person. Appriciated for your time, see you in another articles of mine!
